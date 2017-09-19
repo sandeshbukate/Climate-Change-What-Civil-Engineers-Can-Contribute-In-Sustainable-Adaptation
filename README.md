@@ -1,0 +1,2 @@
+# Climate-Change-What-Civil-Engineers-Can-Contribute-In-Sustainable-Adaptation
+One of the major challenges for civil engineers in the twenty-first century is to answer to mankind's own creation i.e.: change in climate. Carbon dioxide levels have ascended in the course of recent years to be at a level not seen for no less than 400 000 years (NASA, 2017) and worldwide surface temperatures have transcended 0.85 °C above pre-industrial levels (IPCC, 2014). 
